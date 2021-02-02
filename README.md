@@ -12,5 +12,10 @@
 **9.klašu izglītība,**
 **Pabeidzu Pērses sākumskola un** 
 **Ilmāra Gaiša Kokneses vidusskola.**
-
+---
+|   |   |   |   |   |
+|---|---|---|---|---|
+|   |   |   |   |   |
+|   |   |   |   |   |
+|   |   |   |   |   |
 
