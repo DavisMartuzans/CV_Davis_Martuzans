@@ -1,6 +1,8 @@
 # CV_Davis_Martuzans
 
-# H1
-CV
-## H2
-Dāvis Martuzāns
+# CV
+## Dāvis Martuzāns
+**Adrese: Rīga, Tvaika iela 1**
+**Mobīlais Tālrunis: 25644052**
+**E-pasts:martuzans.davis@gmail.com**
+
