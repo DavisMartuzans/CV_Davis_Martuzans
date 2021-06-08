@@ -20,4 +20,4 @@
 #### Intreses
 **Braukāt ar bmx, fotogrāfēt, taisīt mašīnas.**
 ---
-:)
+:grinning:
